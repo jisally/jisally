@@ -1,1 +1,1 @@
-email : seungyeon0510@swu.ac.kr
+email : seungyeon0510@gmail.com
